@@ -22,3 +22,7 @@ Resultados
 ![image](https://github.com/abrilmunozzapata1/p12-EntrePaginas-6j/assets/143549033/42b76468-e2f8-4b36-ba4e-d9ef91e26d0b)
 ![image](https://github.com/abrilmunozzapata1/p12-EntrePaginas-6j/assets/143549033/96217c54-2b8e-45da-ae56-2881fc19049b)
 
+Links 
+https://docs.google.com/document/d/1jTloUy06IgWM7lw4rxjJRm-U0HS4YiTs9KUiXsZLa6U/edit?pli=1
+https://flutlab.io/editor/a13743d7-aae0-48ba-b203-15ba9449bb8d
+
